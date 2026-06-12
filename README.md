@@ -1,1 +1,1 @@
-# Apni-Vidya 2026
+#©Apni-Vidya 2026
